@@ -1,2 +1,1 @@
-No public repositories, haha
-https://campsite.bio/tairel
+No public repositories, haha | https://campsite.bio/tairel
